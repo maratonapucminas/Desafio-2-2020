@@ -1,4 +1,4 @@
-# Desafio-2-2020
+# Desafio-2-2020 :blue_heart:
 
 Que ótimo que você já está aqui no desafio 2, mas calma, estamos apenas começando.
 
